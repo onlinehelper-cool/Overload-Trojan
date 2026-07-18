@@ -1,2 +1,3 @@
 make sure to only open this with permission, if something happens, im not responsible 
+DONT USE THIS IN SCHOOL, TRUST ME.
 HaVe FuN...
